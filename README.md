@@ -1,2 +1,3 @@
 # Loveyou
-I love You.    
+apa lo, kepo! 
+aku juga suka ko.🤪
